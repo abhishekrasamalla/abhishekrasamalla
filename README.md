@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **abhishekrasamalla07@gmail.com**
 
-- 📄 To Know about my experiences please go through My Resume [https://drive.google.com/file/d/1H59ygpgk9E90uFA-n3OL92-hUZ85JLKG/view?usp=drive_link](https://drive.google.com/file/d/1H59ygpgk9E90uFA-n3OL92-hUZ85JLKG/view?usp=drive_link)
+- 📄 To Know about my experiences please go through My Resume [https://drive.google.com/file/d/14eUMHOLTZ35EHJnCG4_K8mBLOQPDShVw/view?usp=sharing](https://drive.google.com/file/d/14eUMHOLTZ35EHJnCG4_K8mBLOQPDShVw/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
